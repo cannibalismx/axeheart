@@ -1,0 +1,13 @@
+hii!!
+ 
+ I'm cole . kai or Nicole! (wtv u want to call me)
+  i usually sit in the library the most you'll find me there always maybe alone or with friends.
+
+I'm always open to c+h and interacting unless l have dni in my name 
+
+before u int keep in mind that I'm a minor and I'd be uncomfortable if u say anything super weird so be careful with your words ty
+I'm also a moody person and it's hard for me to control my emotions but I'd try to be calm as possible ^^
+
+I'm an artist!! l draw digitally and l love watching yt heh and uhh I'm so cool yea or wtv 
+
+ok bye gng
